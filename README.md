@@ -1,1 +1,0 @@
-# dquinde.github.io
